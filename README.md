@@ -1,0 +1,1 @@
+# AICTE-Internships-2025-June_2025-Water-Quality-Prediction
